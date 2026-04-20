@@ -9,4 +9,4 @@ Location is used only to tag GPS information on images.
 
 No data is shared with third parties.
 
-If you have any questions, contact us at: your@email.com
+If you have any questions, contact us at: tomroyofficial@gamil.com
